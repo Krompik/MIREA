@@ -4,5 +4,6 @@
 
 Скриншот
 
-![program2 1](https://user-images.githubusercontent.com/103057512/169353849-bea2b44b-3f97-498e-8ff6-a54fa037919d.png)
+![2](https://user-images.githubusercontent.com/103057512/169391370-8184e9c9-4d19-4ee9-9106-4c3f0fc72370.jpg)
+
 
